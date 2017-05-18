@@ -29,3 +29,5 @@ Send resumes to maggied@burnettspecialists.com
 Job Location: Austin, TX
 Job Compensation: DOE
 Job Type: Direct Hire
+
+[ACCOUNT MANAGEMENT- BURNETT](https://www.burnettspecialists.com/job-seekers/job-details.cfm?jobNumber=98160)

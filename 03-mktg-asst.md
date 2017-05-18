@@ -1,4 +1,4 @@
-Marketing Assistant
+#Marketing Assistant
 Prestigious South Austin financial services company is seeking a Marketing Assistant to coordinate their fulfillment process.
 
 Duties & Responsibilities:
@@ -19,3 +19,5 @@ Requirements include a Bachelor's degree and 1-2 years of corporate experience. 
 Job Location: Austin, TX
 Job Compensation: DOE
 Job Type: Direct Hire
+
+[MARKETING ASSISTANT- S. Austin Financial Services](https://www.burnettspecialists.com/job-seekers/job-details.cfm?jobNumber=99082)

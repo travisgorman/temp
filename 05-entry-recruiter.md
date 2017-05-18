@@ -18,3 +18,5 @@ Must be willing to work a flexible schedule (including some early AM Monday – 
 Some college preferred, but not required
 Mature and responsible with keen attention to detail
 A positive, upbeat attitude with a willingness to pitch in to do whatever it takes to move the business forward; you are energized by teamwork!
+
+[Entry Level Recruiter @ The Personnel Store](http://www.thepersonnelstore.com/entry-level-recruiter/)
