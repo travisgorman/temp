@@ -1,4 +1,4 @@
-JOB DESCRIPTION
+# INTAKE COORDINATOR AT MEADOR STAFFING
 Southwest Austin DME company is seeking an intake coordinator for their growing office. This is an immediate temp to hire role
 
 Job Summary
@@ -35,3 +35,4 @@ Performs all job functions with Company Mission, Vision, and Goal Statements in 
 JOB REQUIREMENTS
 High school diploma or general education degree (GED); three years related experience and/or training; or equivalent combination of education and experience. No professional certificate or licensure required, although preferred.
 
+[INTAKE COORDINATOR AT MEADOR STAFFING](http://www.jobs.net/jobs/meadorstaffing/en-us/job/United-States/Intake-Coordinator-TEMP/J3H1C9631MSXJ78XZ4X/)
