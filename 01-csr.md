@@ -1,9 +1,13 @@
-JOB DESCRIPTION
+# Customer Service Representative at MEADOR STAFFING
+
+### JOB DESCRIPTION
 DME Company in Southwest Austin since 2006 is seeking an experienced Customer Service Representative. The Customer Service Representative will work in a progressive team-oriented environment to perform full-time legendary customer service.
 
-Job Summary
+### Job Summary
 DME Company in Southwest Austin since 2006 is seeking an experienced Customer Service Representative. The Customer Service Representative will work in a progressive team-oriented environment to perform full-time legendary customer service.
-#Job Requirements
+
+### Job Requirements
+
 * Bi-lingual preferred
 * Experience with **Microsoft Office.**
 * Requires on-the-job training to become familiar with Company policies and procedures of the overall operations of the company.
@@ -24,11 +28,15 @@ DME Company in Southwest Austin since 2006 is seeking an experienced Customer Se
 * Other duties as assigned. Benefits and Compensation Our company is a great place to work; we offer paid vacations, paid sick days, health, vision and dental benefits.
 
 
-Customer Service Representative
+[CUSTOMER SERVICES REPRESENTATIVE AT MEADOR STAFFING](http://www.jobs.net/jobs/meadorstaffing/en-us/job/United-States/Customer-Services-Representative-TEMP/J3G05G67S0Z49NN0YSP/)
+
+___
+
+### Customer Service Representative
 Our client, located in Austin, TX, is looking for 3 Customer Service Representatives for a contract role
 
-Company Profile:
-Government agency that deals with tax appraisals
+### Company Profile:
+**Government agency** that deals with **tax appraisals**
 
 Features and Benefits while On Contract:
 Look beyond your average Staffing Firm and enjoy great benefits!
