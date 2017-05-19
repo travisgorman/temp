@@ -15,7 +15,7 @@ In order to be considered for this role, you must have a background that combine
   * accounting,
   * customer service, and
   * technology.
-  *
+
 Sound like the perfect role for you?
 Apply online, email your resume to jobs@ashbystaffing.com or give us a call at 512-458-5271!
 

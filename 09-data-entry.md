@@ -29,7 +29,8 @@ Background Profile:
 * Must have experience providing customer service both in person and on the phone in a stressful environment
 * Strong communication skills
 * Strong Excel skills
-* Must have accurate Data entry skills. Typing should be 45 wpm and be able to do 10 key by touch (will be tested)
+* Must have accurate Data entry skills.
+* Typing should be 45 wpm and be able to do 10 key by touch (will be tested)
 * Stable work history is required
 
 [DATA ENTRY SPECIALIST IN AUSTIN, TX AT FRONTLINE SOURCE GROUP](https://frontlinesource.jobs.net/en-US/job/data-entry-specialist/J3K1P062BZBTHDFRJ1C)

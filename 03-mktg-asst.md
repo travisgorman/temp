@@ -7,7 +7,7 @@ Prestigious **South Austin financial services** company is seeking a Marketing A
 
 ### Duties & Responsibilities:
 * Fulfill subscription kit requests
-* All kit requests fulfilled and logged in Salesforce; confirm hard copy shipments and research and alert proper parties when shipments are kicked back
+* All kit requests fulfilled and **logged in Salesforce**; confirm hard copy shipments and research and alert proper parties when shipments are kicked back
 * Subscription kits accompanied by rep or investor letter outlining contents of package
 * Log and manage all hard copy requests for offerings in designated electronic file on server which notate PPM number, advisor/investor name, address, date sent
 * Log and manage electronic PPMs on server; create pre-numbered files for ease of labeling going forward
@@ -23,9 +23,8 @@ Prestigious **South Austin financial services** company is seeking a Marketing A
 a Bachelor's degree and
 1-2 years of corporate experience.
 
-Qualified candidates please email resumes to Maggie Dunn at Maggied@burnettspecialists.com
-Job Location: Austin, TX
-Job Compensation: DOE
-Job Type: Direct Hire
+Qualified candidates please email resumes to
+Maggie Dunn at Maggied@burnettspecialists.com
+
 
 [MARKETING ASSISTANT- S. Austin Financial Services](https://www.burnettspecialists.com/job-seekers/job-details.cfm?jobNumber=99082)
