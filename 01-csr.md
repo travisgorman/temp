@@ -10,7 +10,7 @@ DME Company in Southwest Austin since 2006 is seeking an experienced Customer Se
 
 * Bi-lingual preferred
 * Experience with **Microsoft Office.**
-* Requires on-the-job training to become familiar with Company policies and procedures of the overall operations of the company.
+* Requires on-the-job training to become familiar with Company policies and procedures of the overall operations of the company
 * Knowledge of *Brightree* - **DME Billing Software** helpful.
 * Knowledge of **Durable Medical Equipment** ? Medical Experience required.
 * **Talks with customers** by phone and receives orders for delivery, pick-up, discontinuance, maintenance or changes in service.
